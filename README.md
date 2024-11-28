@@ -6,4 +6,4 @@
 
 
 
-Tenho uma tartaruga, tigre d`água chamada Speed  -  Patrícia Sousa
+Olá, Eu tenho uma tartaruga, tigre d`água chamada Speed  -  Patrícia Sousa
