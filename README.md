@@ -12,16 +12,8 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
+Gabriel-GGC
+=======
                    Everton Antonio Barbosa: gosto de musculação
 =======
 Eliandro
@@ -91,4 +83,5 @@ Fritz Galdino
 
 
                      Paula 
+
 
